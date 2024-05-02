@@ -1,0 +1,1 @@
+## README This is practical file of GEN AI CREATING VIDEO
